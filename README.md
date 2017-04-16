@@ -1,2 +1,2 @@
 # gamersfriendscommunity
-Uma comunidade portuguesa de joogos e convivio 
+Uma comunidade portuguesa de joogos e convivio!
